@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @dtysd7
-- Show Me Your Skill :))
+:))
